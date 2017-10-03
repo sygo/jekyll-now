@@ -4,4 +4,4 @@ title: Contact
 permalink: /contact/
 ---
 
-Down below ▼ click away :)
+Down below ↴ click away :)
