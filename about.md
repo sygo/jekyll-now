@@ -9,5 +9,5 @@ Sup, home fry?
 
 ### More Information
 
-At the bottom of every page you can find several ways to contact or follow me (If you decide to add me on linkedin, please make sure you mention this website in your introduction inmail, I often decline invies from people I don't recognize).
+At the bottom of every page you can find several ways to contact or follow me (If you decide to add me on linkedin, please make sure you mention this website in your introduction inmail, I often decline invites from people I don't recognize).
 
